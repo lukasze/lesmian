@@ -15,3 +15,6 @@ Za­po­dzia­ni po gło­wy, przez dłu­gie go­dzi­ny
 Pal­ce mia­łaś na oślep skrwa­wio­ne ich so­kiem. 
 
 
+Rdza­we guzy na słoń­cu wy­grze­wał liść cho­ry, 
+
+
