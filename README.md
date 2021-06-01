@@ -25,3 +25,4 @@ I szedł ty­łem na grzbie­cie ja­kiś żuk ko­sma­ty.
 
 
 Dusz­no było od ma­lin, któ­reś, szap­cząc, rwa­ła,
+A szept nasz tyl­ko wów­czas na­ci­chał w ich woni, 
